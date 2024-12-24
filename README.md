@@ -168,8 +168,21 @@ This project is licensed under the MIT License - see the [LICENSE](LICENSE) file
 
 **Aryan Acharya**
 - GitHub: [@aryan1112003](https://github.com/aryan1112003)
-- Portfolio: [Your Portfolio]
-- LinkedIn: [Your LinkedIn]
+- LinkedIn: [https://www.linkedin.com/in/aryan-acharya-9b939b316/]
+
+  ![image](https://github.com/user-attachments/assets/6e2ce768-d7fb-46eb-9d34-033b3a6ce2f2)
+
+
+![image](https://github.com/user-attachments/assets/c98de44f-fb20-4ff1-b24e-933021ab1cae)
+
+![image](https://github.com/user-attachments/assets/190c1094-7aa2-4676-bef8-fca6696024bf)
+
+![image](https://github.com/user-attachments/assets/ff4ebe97-ef61-4a1a-a588-dbab90ed242e)
+
+![image](https://github.com/user-attachments/assets/8e0c104d-2ff4-4cba-a852-75afb23b0271)
+
+
+
 
 ## 🌟 Show your support
 
